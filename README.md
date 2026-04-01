@@ -1,0 +1,2 @@
+# alisher.usmonov
+kelajak texnologiyalari
